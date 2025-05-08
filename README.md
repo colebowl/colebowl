@@ -8,7 +8,7 @@ I care deeply about:
 - Solving hard problems, I'm the person usually tasked to figure out the ploblem others couldn't - This is my favourite kind of problem
 - Building platforms that are truly enjoyable to use, and work on. Are efficient, reliable and ready to scale.
 
-When not at my desk I am likely riding a bike, talking about bike racing or adventuring with my wife. 
+When not at my desk I am likely tinkering in my workshop, riding a bike, talking about bike racing or adventuring with my wife. 
 
  
 
